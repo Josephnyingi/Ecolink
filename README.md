@@ -20,4 +20,6 @@ Peter Maturwe
 Joseph Nyingi
 
 # Useful links
-Here is presentation link
+Ecolink pitch deck is  [here](https://docs.google.com/presentation/d/1tw_jMT_NAPc3ChziPUmQlJW6YWZ1h-No/edit?usp=sharing&ouid=111177088834479458290&rtpof=true&sd=true) 
+
+
